@@ -9,6 +9,9 @@ Intern at Center for Western Weather and Water Extremes(CW3E)
 Undergraduate Researcher at Scripps Institutin of Oceanography(SIO)
 Intern at San Diego Supercomputer Center
 
+Surf Instructor at EDCA
+Surf Shop Employee at Carlsbad Pipelines
+
 ### Projects
 
 
